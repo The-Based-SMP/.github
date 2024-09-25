@@ -1,3 +1,3 @@
 # Based SMP :3
 
-going to get cube to write the readme file cause im lazy :3
+nvm this is the uhh readme for the .github project not the actual thingy...
