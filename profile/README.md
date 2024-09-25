@@ -1,4 +1,4 @@
-## Hi there 👋
+# CUBOID MAKE THE README PLEASE :3 https://github.com/Based-SMP-3/.github/edit/main/profile/README.md
 
 <!--
 
